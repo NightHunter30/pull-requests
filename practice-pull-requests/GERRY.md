@@ -1,0 +1,1 @@
+Thank you for a brilliant semester! It was a challenge, but I know we all grew and evolved into full stack web developers. I had a lot of fun and am grateful for the opportunity to upskill in a major way. Thank you for working tirelessly to set us up for success! My life is forever changed, and that is in no small part thanks to you, Professor. Thank you!
